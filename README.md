@@ -2,3 +2,5 @@
 讲义见 slides 目录。
 
 视频回放：https://space.bilibili.com/486741421/channel/seriesdetail?sid=705964
+
+活动总结：https://mp.weixin.qq.com/s/ghFTj82OgMEJcz0TbZRW-Q
